@@ -1,5 +1,5 @@
 **Gamer** and **Developer**
 
-**Youtube** : https://www.youtube.com/channel/UCypg44rCkh3Njxz1DDhdhDA
-
 **Discord** : hsfar
+
+**Email** : firef0822@gmail.com
